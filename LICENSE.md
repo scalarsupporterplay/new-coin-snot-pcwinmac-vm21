@@ -1,4 +1,4 @@
-# 
+# Ultimato new coin sniper bot predefinições para Mac OS | Exclusivo new coin sniper bot predefinições para PC Windows. Com integração de API e ordens de take-profit — otimizado para máximo desempeño en cada plataforma.
 
 
 
